@@ -33,3 +33,4 @@ You can support the Palestine Will Remain Free website in several ways, includin
 Visit the website: Visit the website regularly and read the content.
 Content Sharing: Sharing website content on social media sites.
 </p>
+<img width="1760" alt="project3" src="https://github.com/ahmedfaris2023/Palestine/assets/124607626/c5d9682e-8616-42d5-8a1d-fcfac8ed1d50">
